@@ -1,1 +1,0 @@
-# Stacy-Palmers
